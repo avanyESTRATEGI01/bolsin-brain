@@ -1,7 +1,9 @@
 Objetivo:
-Fazer a pessoa perceber que existe um problema financeiro.
+Fazer a pessoa perceber que não tem controle financeiro.
 
-Estado emocional:
-Confusão e ansiedade.
+Conteúdos:
+- Reels de situações reais
+- Perguntas provocativas
+- Comparações simples
 
-Aqui não existe venda.
+Nenhuma venda nesta fase.
